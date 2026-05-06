@@ -1,4 +1,4 @@
-
+Experience dayz aim like never before with vip dayz aim Scripts | instant item pickup + auto-map reveal, the #1 scripts. Includes instant item pickup and auto-map reveal for
 
 
 
